@@ -1,5 +1,6 @@
 # Digital-Portfolio
-##**CAREER COUNSELLING**
+**CAREER COUNSELLING**
+-
 ***
 >Career Counselling is a process whereby professional guidance is offered to individuals which then helps them understand their skills, interests, personality, and career options to make informed decisions about their education, career path, and professional growth. I recieved career counselling where I was given information and assessments which helped me gain a deeper understanding about myself so I can make informed decisions about my future.
 
@@ -11,7 +12,8 @@ I completed a short course on career development, which covered important topics
 
 ***
 
-##**SKILLS AND INTERESTS**
+**SKILLS AND INTERESTS**
+-
 ***
 >Skills are the abilities, knowledge, and expertise a person has obtained through education, training, or experience. Interests are the activities, subjects, that an person enjoys and love doing. I learnt about and did an interest and skils assessment which helped me be sure of what I enjoy doing and to be able to choose a job that is suitable for me. 
 
@@ -23,7 +25,8 @@ I did a short course on Skills and Interests, the course covered various topics,
 
 ***
 
-##**PERSONALITY ASSESSMENT**
+**PERSONALITY ASSESSMENT**
+-
 ***
 >A personality assessment is an evaluation of a person's traits, behaviors, emotions, and thought patterns. I learnt about and did a personality assessment which was helpful in making me aware of my strengths and weaknesses and know where I fit in.
 
@@ -36,7 +39,8 @@ I completed a short course on Personality Assessment that aimed to deepen my und
 ***
 
 
-##**CREATE A CV**
+**CREATE A CV**
+-
 ***
 >This is where I was taught and learnt about how to create a cv what important information should be there, what is optional and what should not be there.
 
@@ -49,7 +53,8 @@ I did a course on creating a CV, where I had to understand the fundamental topic
 ***
 
 
-##**CV SUBMISSION**
+**CV SUBMISSION**
+-
 ***
 >This is where I submitted the cv I created.
 
