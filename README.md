@@ -73,7 +73,7 @@ As part of my work readiness, I was tasked with preparing and submitting a compr
 >Business communication is the professional exchange of information within and outside a workplace to achieve business objectives. It includes verbal, non-verbal, and written forms of communication and ensures that messages are understood, appropriate in tone, and suitable for the business context.
 
 **BUSINESS COMMUNICATION EVIDENCE**
-
+![Image](https://github.com/user-attachments/assets/a7dcae77-2427-47f0-b917-b51b12221e6e)
 
 I  did a short course in Business Communication to improve my professional communication skills in workplace settings. The course focused on important topics like effective verbal and non-verbal communication, the right tone and formality in business emails, and professional behavior during virtual meetings. My goal was to learn how to communicate clearly and respectfully in different business situations. Throughout the course, I actively engaged with the material, reviewed lessons carefully, and thought about how to apply what I learned in real life. When I first answered a question incorrectly about when to use formal language, I went back over the content to deepen my understanding. As a result, I achieved a 100% overall score, showing that I understand the key principles of business communication. This experience has greatly improved my ability to adjust my tone, language, and presentation style in professional interactions. I now communicate with more confidence and effectiveness in both written and virtual settings.
 
