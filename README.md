@@ -100,7 +100,7 @@ I completed a short course on Interview Skills. It aimed to help me prepare bett
 >A mock interview is a practice interview that mimics a real job interview. It gives you a chance to practice answering common interview questions in a realistic environment. This helps you build your confidence, communication, presentation skills, and identify areas for improvement before your actual interview.
 
 **MOCK INTERVIEW EVIDENCE**
-
+![Image](https://github.com/user-attachments/assets/3cd078cc-158d-4e17-95ca-10105b1c9cc5)
 
 I participated in a mock interview to practice and demonstrate the techniques I had learned. I had to approach the exercise as if it were a real job interview, focusing on professionalism, confidence, and clear communication. My task was to effectively apply the CAR method when responding to questions, maintain positive body language, and present my strengths in a structured and engaging way. To prepare, I rehearsed my answers, and practiced speaking with confidence while being mindful of my tone and posture. During the mock interview, I focused on answering thoughtfully and showcasing both my skills and personality. As a result, I was able to identify areas to improve—such as providing more detailed examples and maintaining a positive body language. This experience significantly boosted my confidence and equipped me with practical strategies to perform better in real job interviews.
 
