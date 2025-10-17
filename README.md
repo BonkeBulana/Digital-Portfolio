@@ -126,6 +126,6 @@ I completed a short course on Professional Networking aimed at helping me unders
 >Workplace etiquette is the practice of displaying professional behavior, respect, and proper conduct in the workplace, including punctuality, appropriate communication, confidentiality, and responsible use of personal devices.
 
 **WORKPLACE ETIQUETTE EVIDENCE**
-
+![Image](https://github.com/user-attachments/assets/81fe6f3d-8e3c-405d-b807-2a532c3e52e6)
 
 I completed a short course on Workplace Etiquette that focused on the professional behaviors and standards expected in a workplace environment. The situation involved learning how to interact respectfully with colleagues, manage time well, and handle sensitive situations appropriately. My task was understanding key aspects such as responding to rude or offensive emails, arriving on time for meetings, handling confidential information, using personal devices appropriately, and managing personal leave requests responsibly. To achieve this, I carefully reviewed each module, reflected on my current habits, and considered practical ways to implement these etiquette standards in real workplace scenarios. As a result, I completed the course with a 100% score, gaining confidence in my ability to maintain professionalism, respect workplace norms, and contribute positively to a productive and respectful work environment.
