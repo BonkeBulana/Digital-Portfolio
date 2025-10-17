@@ -87,7 +87,7 @@ I  did a short course in Business Communication to improve my professional commu
 >Interview Skills are the abilities and techniques used to effectively prepare for, and communicate your strengths, experiences, and personality effectively during an interview to leave a positive impression on the interviewer and succeed in getting the job.
 
 **INTERVIEW SKILLS EVIDENCE**
-
+![Image](https://github.com/user-attachments/assets/d61adaa8-c512-4155-9966-ed3978c0f4dc)
 
 I completed a short course on Interview Skills. It aimed to help me prepare better, feel more confident, and perform well in job interviews. The course covered important topics like the main goal of an interview, using the CAR method to organize my answers, researching companies ahead of time, and effectively responding to common questions like “Tell me about yourself” and “What is your greatest weakness?” My task was to complete all the modules and show a strong understanding of the techniques needed for success in professional interviews. I engaged with the course material, reflected on my own experiences, and studied to clear up my initial confusion about the CAR method. This process helped me improve my ability to give clear, structured, and confident answers. In the end, I scored 100% and learned how to communicate my strengths, tackle tough questions, and make a good impression on potential employers.
 
