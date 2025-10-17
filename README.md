@@ -113,7 +113,7 @@ I participated in a mock interview to practice and demonstrate the techniques I 
 >Professional networking is the process of building, connecting, and maintaining relationships with people in your industry or related fields to exchange knowledge, ideas, and support your career growth, share opportunities, and provide guidance or collaboration.
 
 **PROFESSIONAL NETWORKING EVIDENCE**
-
+![Image](https://github.com/user-attachments/assets/df078fd4-c414-45c5-8102-c23f96722012)
 
 I completed a short course on Professional Networking aimed at helping me understand how to build and maintain meaningful professional relationships. The situation involved learning how to connect effectively with others in professional settings to create opportunities for collaboration, growth, and career advancement. My task was to understand key principles such as the main purpose of networking, the importance of networking events, the “golden rule” of networking (to give before you expect to receive), and common mistakes to avoid when building connections. To achieve this, I engaged with the course materials, reflected on my own networking experiences, and practiced strategies for starting and maintaining professional contacts in person and online. As a result, I completed the course with a 100% score. I gained a deeper understanding of how to approach networking with authenticity, confidence, and mutual respect. This experience improved my ability to build valuable professional relationships that can support my personal and career development.
 
