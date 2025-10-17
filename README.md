@@ -64,17 +64,68 @@ I did a course on creating a CV, where I had to understand the fundamental topic
 As part of my work readiness, I was tasked with preparing and submitting a comprehensive CV that accurately reflects my skills, qualifications, and career objectives. The involved presenting myself in the best possible way for future job opportunities or academic advancement. My task was to ensure that my CV was well-organized, free of errors, and tailored to highlight my most relevant experiences and strengths. To accomplish this, I used the knowledge obtained in the create a cv course in work readiness . I then carefully structured my CV, including sections such as a personal profile, education, skills, experience, and achievements. I paid particular attention to using clear, concise language and ensuring consistency in formatting. After several rounds of proofreading and edits, I submitted the final version. The result was a polished CV that I feel confidently represents my capabilities. This exercise not only strengthened my document preparation skills but also gave me greater clarity about my career direction and how to present myself professionally.
 
 
+***
+
+
+**BUSINESS COMMUNICATION**
+-
+***
+>Business communication is the professional exchange of information within and outside a workplace to achieve business objectives. It includes verbal, non-verbal, and written forms of communication and ensures that messages are understood, appropriate in tone, and suitable for the business context.
+
+**BUSINESS COMMUNICATION EVIDENCE**
+
+
+I  did a short course in Business Communication to improve my professional communication skills in workplace settings. The course focused on important topics like effective verbal and non-verbal communication, the right tone and formality in business emails, and professional behavior during virtual meetings. My goal was to learn how to communicate clearly and respectfully in different business situations. Throughout the course, I actively engaged with the material, reviewed lessons carefully, and thought about how to apply what I learned in real life. When I first answered a question incorrectly about when to use formal language, I went back over the content to deepen my understanding. As a result, I achieved a 100% overall score, showing that I understand the key principles of business communication. This experience has greatly improved my ability to adjust my tone, language, and presentation style in professional interactions. I now communicate with more confidence and effectiveness in both written and virtual settings.
+
 
 ***
 
 
+**INTERVIEW SKILLS**
+-
+***
+>Interview Skills are the abilities and techniques used to effectively prepare for, and communicate your strengths, experiences, and personality effectively during an interview to leave a positive impression on the interviewer and succeed in getting the job.
+
+**INTERVIEW SKILLS EVIDENCE**
 
 
+I completed a short course on Interview Skills. It aimed to help me prepare better, feel more confident, and perform well in job interviews. The course covered important topics like the main goal of an interview, using the CAR method to organize my answers, researching companies ahead of time, and effectively responding to common questions like “Tell me about yourself” and “What is your greatest weakness?” My task was to complete all the modules and show a strong understanding of the techniques needed for success in professional interviews. I engaged with the course material, reflected on my own experiences, and studied to clear up my initial confusion about the CAR method. This process helped me improve my ability to give clear, structured, and confident answers. In the end, I scored 100% and learned how to communicate my strengths, tackle tough questions, and make a good impression on potential employers.
 
 
+***
 
 
+**MOCK INTERVIEW**
+-
+>A mock interview is a practice interview that mimics a real job interview. It gives you a chance to practice answering common interview questions in a realistic environment. This helps you build your confidence, communication, presentation skills, and identify areas for improvement before your actual interview.
+
+**MOCK INTERVIEW EVIDENCE**
 
 
+I participated in a mock interview to practice and demonstrate the techniques I had learned. I had to approach the exercise as if it were a real job interview, focusing on professionalism, confidence, and clear communication. My task was to effectively apply the CAR method when responding to questions, maintain positive body language, and present my strengths in a structured and engaging way. To prepare, I rehearsed my answers, and practiced speaking with confidence while being mindful of my tone and posture. During the mock interview, I focused on answering thoughtfully and showcasing both my skills and personality. As a result, I was able to identify areas to improve—such as providing more detailed examples and maintaining a positive body language. This experience significantly boosted my confidence and equipped me with practical strategies to perform better in real job interviews.
 
 
+***
+
+
+**PROFESSIONAL NETWORKING**
+-
+>Professional networking is the process of building, connecting, and maintaining relationships with people in your industry or related fields to exchange knowledge, ideas, and support your career growth, share opportunities, and provide guidance or collaboration.
+
+**PROFESSIONAL NETWORKING EVIDENCE**
+
+
+I completed a short course on Professional Networking aimed at helping me understand how to build and maintain meaningful professional relationships. The situation involved learning how to connect effectively with others in professional settings to create opportunities for collaboration, growth, and career advancement. My task was to understand key principles such as the main purpose of networking, the importance of networking events, the “golden rule” of networking (to give before you expect to receive), and common mistakes to avoid when building connections. To achieve this, I engaged with the course materials, reflected on my own networking experiences, and practiced strategies for starting and maintaining professional contacts in person and online. As a result, I completed the course with a 100% score. I gained a deeper understanding of how to approach networking with authenticity, confidence, and mutual respect. This experience improved my ability to build valuable professional relationships that can support my personal and career development.
+
+
+***
+
+
+**WORKPLACE ETIQUETTE**
+-
+>Workplace etiquette is the practice of displaying professional behavior, respect, and proper conduct in the workplace, including punctuality, appropriate communication, confidentiality, and responsible use of personal devices.
+
+**WORKPLACE ETIQUETTE EVIDENCE**
+
+
+I completed a short course on Workplace Etiquette that focused on the professional behaviors and standards expected in a workplace environment. The situation involved learning how to interact respectfully with colleagues, manage time well, and handle sensitive situations appropriately. My task was understanding key aspects such as responding to rude or offensive emails, arriving on time for meetings, handling confidential information, using personal devices appropriately, and managing personal leave requests responsibly. To achieve this, I carefully reviewed each module, reflected on my current habits, and considered practical ways to implement these etiquette standards in real workplace scenarios. As a result, I completed the course with a 100% score, gaining confidence in my ability to maintain professionalism, respect workplace norms, and contribute positively to a productive and respectful work environment.
